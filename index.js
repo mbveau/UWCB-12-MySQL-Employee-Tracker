@@ -1,0 +1,1 @@
+I don't know what I'm doing and I can't afford to pay the Federal Gov't back for the cost of this course. But I'm learning!
